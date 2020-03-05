@@ -1,2 +1,3 @@
 # Hello-world-
 Beginning stuff. Still dk why am i doing this...
+I am going to start everything. And try not to use an f and s words.
